@@ -1,0 +1,1 @@
+# paratinomi-mini-a
